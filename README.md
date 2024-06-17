@@ -1,1 +1,0 @@
-# temario_bio_geo
